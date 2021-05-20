@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm yorgato</h1>
-<h3 align="center">A passionate developer from Colombia papa -:),</h3>
+<h3 align="center">A passionate developer, leader with ability to motivate and educate</h3>
 
 - 💬 Ask me about **java, spring boot, python, js, vue, css**
 
