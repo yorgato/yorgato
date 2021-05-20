@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **@yorgato**
 
-- 📄 Know about my experiences [https://co.linkedin.com/in/yorley-reyes-85729058](https://co.linkedin.com/in/yorley-reyes-85729058)
+- 📄 Know about my experiences soon.....
 
 - ⚡ Fun fact **i think that i'm funny**
 
